@@ -20,8 +20,6 @@ Mix \(cream\) together all ingredients. Refrigerate dough for 30 minutes. Portio
 
 Recipe makes about 40 fat bombs. Nutrition for 1 = 53cals, 1.9 net carbs, 4.8 fat, 1.6 protein
 
-
-
 ## Notes:
 
 Waiting to try this one
